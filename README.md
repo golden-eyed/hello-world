@@ -2,7 +2,7 @@
 Let it be 
 
 We chased our pleasures here
-Dug our treasures there 
+dug our treasures there 
 
 But can you still recall
-The time we cried 
+the time we cried 
